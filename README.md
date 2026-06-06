@@ -1,4 +1,4 @@
-#👻 EuOlavo:
+# 👻 EuOlavo:
 [Instagram](https://instagram.com/lluisolavo) • [Discord](https://discord.gg/headnanB2D) • [Email](mailto:olavonetwork@gmail.com)
 
 📚 Olavo Network
