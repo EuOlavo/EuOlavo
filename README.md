@@ -1,5 +1,5 @@
 ## Minhas Redes:
-[Instagram](https://instagram.com/lluisolavo) • [Discord](https://discord.gg/headnanB2D) • [![Email](https://img.shields.io/badge/Email-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:luisolavo@gmail.com)
+[Instagram](https://instagram.com/lluisolavo) • [Discord](https://discord.gg/headnanB2D) • [Email](mailto:olavonetwork@gmail.com)
 
 📚 Olavo Network
 
