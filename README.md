@@ -1,7 +1,7 @@
-# 👻 EuOlavo
+# 🙋🏻‍♂️ EuOlavo
 [Instagram](https://instagram.com/lluisolavo) • [Discord](https://discord.gg/headnanB2D) • [Email](mailto:olavonetwork@gmail.com)
 
-📚 Olavo Network
+📖 Olavo Network
 
 **🇧🇷** A Olavo Network é uma empresa especializada no desenvolvimento de soluções para servidores FiveM. Atuamos na criação de scripts exclusivos, sistemas personalizados, interfaces modernas e recursos avançados para servidores de roleplay no Grand Theft Auto V. Nosso compromisso é oferecer produtos de alta qualidade, desempenho e inovação, proporcionando uma experiência única para administradores e jogadores.
 
